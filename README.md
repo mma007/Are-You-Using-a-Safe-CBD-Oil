@@ -1,1 +1,15 @@
-# Are-You-Using-a-Safe-CBD-Oil
+CBD oil is becoming one of the hottest new products on the market today. In fact, annual sales of CBD oil products in 2018 was nearly 600 million and is estimated to be growing at a rate exceeding 107 percent annually. Prior to 2017, CBD products were available only in head shops, natural food stores, and at a few doctor's offices. Since that time, the market has exploded and CBD products are now available in natural food stores, national food stores, beauty salons, nail salons, convenience stores, and even gas stations. But, are these CBD products manufactured from safe CBD oil?
+
+First of all, let's examine what we mean by safe CBD oil. Some reports indicate that as much as 40% of the CBD products on the market tested positive for heavy metals like lead and arsenic, concentrated chemical pesticides, bacteria, fungi, toxic mold, THC, and numerous other dangerous impurities. Most people would agree that products containing these impurities would be considered to be unsafe.
+
+Most of these unsafe CBD oil products are grown and manufactured in China, Mexico, and numerous third world countries that do little or no oversight in the products they sell.
+
+One of the most common and dangerous impurities commonly found in tainted CBD products is chemical pesticides. These chemicals are used to kill insects and other organisms that can be harmful to the plant. According to the Toxics Action Center, "Pesticides have been linked to a wide range of human health hazards, ranging from short-term impacts such as headaches and nausea to more serious health problems like cancer, reproductive damage, and endocrine disruption." It could be very dangerous to ingest any type of tainted CBD product if it is contaminated with pesticides.
+
+The best and safest products available on the market are those in which the hemp is grown in the United States and the oil is produced in a food-grade facility. And, of course, it must be tested by a reliable, third-party facility. If you're looking for a safe CBD oil product with consistent high-quality and levels of CBD, look for suppliers located in the U.S. who use only U.S. grown hemp. In addition, look for suppliers that whose products are thoroughly tested for purity, quality, and cleanliness. And, as an added measure of safety and quality, many of these manufacturers are regulated by state agencies.
+
+As an example of this type of state oversight, CBD manufacturers located in Colorado must register with the Colorado Department of Public Health and Environment (CDPHE). Then,they must meet several requirement such as demonstrating that industrial hemp produced in that facility does not contain more than three-tenths of 1 percent of THC, the psychoactive compound in marijuana that causes one to get high.
+
+When you purchase from suppliers located in Colorado or if your supplier uses other third party organizations that certify that you are buying safe products, you can be assured that CBD products like bath bombs, CBD drops, gummies, gel caps, relief creams, ointments, and more are safe to consume and use.
+
+For more info: [CBD Skincare](https://cbdprivatelabel.org/cbd-for-skin-care-works-as-a-miracle-drug/)
